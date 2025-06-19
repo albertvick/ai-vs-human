@@ -9,7 +9,7 @@
 
   <p>Silicone dolls are far ahead of the plastic, inflatable models from decades ago. Today’s dolls come with realistic skin texture, thermal elements for warmth, flexible joints, and body designs that mimic the human physique down to skin folds and dimples.</p>
 
-  <p>Buyers today have access to a wide variety of designs including niche preferences like the <strong>flat chested sex doll</strong> models, which are in demand among collectors and minimalist enthusiasts looking for specific aesthetics. Similarly, themed designs like the <strong>alien sex doll</strong> cater to fans of fantasy, sci-fi, and cosplay culture — adding a creative twist to an already evolving industry.</p>
+  <p>Buyers today have access to a wide variety of designs including niche preferences like the <a href="https://allyourdolls.com/collections/flat-chest-love-dolls/" target="_blank">flat chest doll</a> models, which are in demand among collectors and minimalist enthusiasts looking for specific aesthetics. Similarly, themed designs like the <a href="https://allyourdolls.com/product-category/by-its-look/alien/" target="_blank">alien</a> cater to fans of fantasy, sci-fi, and cosplay culture — adding a creative twist to an already evolving industry.</p>
 
   <p>But despite their realism, traditional dolls have always lacked one crucial element: interaction. They can’t listen, respond, or evolve emotionally with their owner. That’s exactly what AI aims to change.</p>
 
